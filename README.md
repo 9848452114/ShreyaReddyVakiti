@@ -1,2 +1,0 @@
-# ShreyaReddyVakiti
-hie shreya
